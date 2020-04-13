@@ -26,3 +26,6 @@ searching for optimal solutions for problems which are connected with user exper
 - Polish - B1
 ### Portfolio🎨
 https://www.behance.net/ellibel1
+### Contact information 📲
+ellibel180@gmail.com
+https://vk.com/id145406507
