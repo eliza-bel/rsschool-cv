@@ -1,4 +1,4 @@
-# Eliza Belavusava
+# Eliza Belousova
 Student, graphic designer
 ### Personal profile👩
 I’m styding at BSU at the 3rd course, specialization is web programming and computer design.
